@@ -13,7 +13,9 @@
 </p>
 
 <p align="center">
-  w2i  mostly⠀⠀c+h heavily enc⠀⠀ships int  !!
+  🐰    𓏏𓏏  carni  ╱  apple  ❛  𝜗𝜚
+       w2i  ships  int  c + h
+   ♡  𓏴𓏴  system  ‿‿ profic  🐾 
 </p>
 
 <p align="center">
