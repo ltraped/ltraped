@@ -14,10 +14,10 @@
 
 <p align="center">
   🐰    𓏏𓏏  carni  ╱  apple  ❛  𝜗𝜚
-  
-       w2i  ships  int  c + h
-       
-   ♡  𓏴𓏴  system  ‿‿ profic  🐾 
+<p align="center">
+    w2i  ships  int  c + h
+<p align="center">
+         ♡  𓏴𓏴  system  ‿‿ profic  🐾 
 </p>
 
 <p align="center">
