@@ -9,7 +9,7 @@
 </p>
 
 <p align="center">
-  <a href=https://ltraped.straw.page/>strawpage</a>⠀ ›⠀ <a href=https://ltraped.atabook.org/>atabook</a>⠀ ›⠀ <a href=https://x.com/ltraped>twitter</a>
+  <a href=https://itraped.straw.page/>strawpage</a>⠀ ›⠀ <a href=https://ltraped.atabook.org/>atabook</a>⠀ ›⠀ <a href=https://x.com/ltraped>twitter</a>
 </p>
 
 <p align="center">
